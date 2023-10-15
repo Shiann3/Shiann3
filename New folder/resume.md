@@ -1,20 +1,7 @@
-
-
-
-
-
-
-
-
-
-
-
-
 Shianne Henry 
-
+Computer science and Biology Major Northeastern University 2027
 
 CONTACT
-
  857-312-3498
  henry.shi@northeastern.edu
  henryshianne94@gmail.com
