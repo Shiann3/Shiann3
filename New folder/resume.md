@@ -11,7 +11,9 @@
 
 
 Shianne Henry 
-
+Computer science and Biology Major
+Northeastern University
+2027
 
 CONTACT
 
