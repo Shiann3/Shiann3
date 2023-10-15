@@ -1,15 +1,3 @@
-
-
-
-
-
-
-
-
-
-
-
-
 Shianne Henry 
 Computer science and Biology Major
 Northeastern University
